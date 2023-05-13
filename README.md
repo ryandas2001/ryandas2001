@@ -1,0 +1,5 @@
+- 👋 olá sou ryan douglas
+- 📚 estudo SI-Sistemas de Informação
+- 👨‍💻 gosto de programar
+- 👨‍💻 gosto de criar projetos
+- 👦 pronomes: ele/dele
